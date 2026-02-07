@@ -12,4 +12,4 @@
 
 
 
-<img src="https://www.theshot.com/television/why-everyone-under-25-saying-six-seven-all-time-and-when-will-it-stop">
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQf_l2GztOYi3bbaq3lWF4ck5BT8e5VpVnQEA&s">
